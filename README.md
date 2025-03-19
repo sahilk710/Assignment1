@@ -16,7 +16,7 @@ Dhrumil Patel
 Sahil Kasliwal
 
 Contribution:
-Sahil - 50%
+Sahil - 70%
 
 
 Introduction
